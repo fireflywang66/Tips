@@ -5,11 +5,6 @@
 
 已购：小火箭（即梯子、shadowrocket）、Alook浏览器、Forest专注森林、人类一败涂地、地狱边境、月圆之夜
 
-2:国区id：yusheng5959@163.com
-密码：yycy2020YYCY
-
-已购：Notability、Goodnotes、Procreate
-
 3: 美区id：o16y08wv@icloud.com
 密码：Fb885885
 
