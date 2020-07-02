@@ -18,7 +18,7 @@
 5：美区id：renc46cz@icloud.com
 密码：Tt885885
 
-已购：彩云天气Pro，This war of mine
+已购：彩云天气Pro，This war of mine、NBA 2k20
 
 二：免费高速节^点：https://ikuuu.co
 注册成功后点击底部一键导入（小火箭），这网站内也是有教程的。白嫖50g每月，速度还不错（网址不稳定请换浏览器）
