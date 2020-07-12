@@ -27,4 +27,4 @@
 
 四：使用群里账号下载付费app时可能还会显示价格，请继续点击，只是让你再确认一下，不会收费的
 
-五：每次下载找专辑对应app英文（在App Store搜索）及介绍，别下载冒牌app，app使用时和国区一样的：http://mp.weixin.qq.com/s?__biz=MzUzMDk5ODkxMw==&mid=100003461&idx=1&sn=13109ea421be286db32a7731ef4e9df1&chksm=7a487d6b4d3ff47d224af62d946ed559d8077e8e8d3e9b9056ba130807489f989da4339e964b#rd# 
+五：每次下载找专辑对应app英文（在App Store搜索）及介绍，别下载冒牌app，app使用时和国区一样的：http://mp.weixin.qq.com/s?__biz=MzUzMDk5ODkxMw==&mid=100004431&idx=1&sn=aad0aa0da979452038d77c49085e3641&chksm=7a4861a14d3fe8b7844378e94778dd01430b726e849ed070b0be35cac476b0c1ac35399b4020#rd
