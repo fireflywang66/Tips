@@ -9,7 +9,7 @@
 
 3: 美区id：o16y08wv@icloud.com
 密码：Fb885885
-（特别提醒此账号已购小火箭shadowrocket）
+（特别提醒此账号已购app：小火箭shadowrocket）
 
 4:美区id：r303o7w8@icloud.com
 密码：Gs8891885
