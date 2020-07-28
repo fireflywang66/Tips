@@ -4,7 +4,7 @@
 密码：Fb885885
 （特别提醒此账号已购app：小火箭shadowrocket）
 
->已购：nPlayer、王国保卫战复仇、纪念碑谷2
+>已购：nPlayer、王国保卫战复仇、纪念碑谷2、小火箭
 
 4:美区id：r303o7w8@icloud.com
 密码：Gs8891885
