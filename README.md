@@ -4,11 +4,17 @@
 密码：Fb885885
 （特别提醒此账号已购app：小火箭shadowrocket）
 
+>已购：nPlayer、王国保卫战复仇、纪念碑谷2
+
 4:美区id：r303o7w8@icloud.com
 密码：Gs8891885
 
+>已购：熊猫吃短信、TouchRetouch、饥荒
+
 5：美区id：renc46cz@icloud.com
 密码：Tt885885
+
+>已购：彩云天气Pro、NBA2k20、This War of Mine
 
 6：国区账号：boegzk@163.com
 密码：Ma84266852
