@@ -3,7 +3,7 @@
 3: 美区id：o16y08wv@icloud.com
 密码：Fb885885
 
->已购：小火箭、nPlayer、王国保卫战复仇、纪念碑谷2
+>已购：nPlayer、王国保卫战复仇、纪念碑谷2
 
 4:美区id：r303o7w8@icloud.com
 密码：Gs8891885
@@ -22,4 +22,4 @@
 
 三：一定直接在App Store登录账号（个人中心下拉至底部登出）不要从设置中登录，会被锁账号。下载app时可能还会显示价格，请继续点击。
 
-五：每次下载看一下对应app英文（在App Store搜索）及介绍，别下载冒牌app，app使用时和国区一样的，汇总→：http://mp.weixin.qq.com/s?__biz=MzUzMDk5ODkxMw==&mid=100004431&idx=1&sn=aad0aa0da979452038d77c49085e3641&chksm=7a4861a14d3fe8b7844378e94778dd01430b726e849ed070b0be35cac476b0c1ac35399b4020#rd
+五：每次下载前可以看一下介绍，别下载冒牌app，app使用时和国区一样的，汇总→：http://mp.weixin.qq.com/s?__biz=MzUzMDk5ODkxMw==&mid=100004431&idx=1&sn=aad0aa0da979452038d77c49085e3641&chksm=7a4861a14d3fe8b7844378e94778dd01430b726e849ed070b0be35cac476b0c1ac35399b4020#rd
