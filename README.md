@@ -11,7 +11,7 @@
 >已购：熊猫吃短信、TouchRetouch、饥荒
 
 5：美区id：renc46cz@icloud.com
-密码：Tt885885
+密码：8426Mr88
 
 >已购：彩云天气Pro、NBA2k20、This War of Mine
 
