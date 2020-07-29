@@ -16,7 +16,7 @@
 >已购：彩云天气Pro、NBA2k20、This War of Mine
 
 6：国区账号：boegzk@163.com
-密码：Ma84266852
+密码：Ma885885
 
 >已购：时间规划局、Alook浏览器、VVebo、头条专业版、全能扫描王付费版、一言、小历、Pictailor、给未来写封信
 
