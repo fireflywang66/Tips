@@ -13,7 +13,7 @@
 国区账号7：smzzm43@163.com
 密码：685Q885q
 
->已购：inside
+>已购：inside、说剑The swords、BADLAND
 
 二：只是公众号小福利，不是专业做分享的，直接在appstore搜索要下载的App，不要从已购app列表中搜索。下载app时可能还会显示价格，请继续点击！内购也都是全解锁的。
 
