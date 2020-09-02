@@ -15,10 +15,10 @@
 
 >已购：inside
 
-二：只是公众号小福利，不是专业做分享的，直接在appstore搜索要下载的App，不要从已购app列表中搜索。下载app时可能还会显示价格，请继续点击！
+二：只是公众号小福利，不是专业做分享的，直接在appstore搜索要下载的App，不要从已购app列表中搜索。下载app时可能还会显示价格，请继续点击！内购也都是全解锁的。
 
 三：一定直接在App Store登录账号（个人中心下拉至底部登出）不要从设置中登录，会被锁账号。
 
-四：每次下载前可以看一下介绍，别下载冒牌app，app使用时和国区一样的，汇总→：http://mp.weixin.qq.com/s?__biz=MzUzMDk5ODkxMw==&mid=100004431&idx=1&sn=aad0aa0da979452038d77c49085e3641&chksm=7a4861a14d3fe8b7844378e94778dd01430b726e849ed070b0be35cac476b0c1ac35399b4020#rd
+四：每次下载前可以看一下介绍，别下载冒牌app，app，汇总→：http://mp.weixin.qq.com/s?__biz=MzUzMDk5ODkxMw==&mid=100004431&idx=1&sn=aad0aa0da979452038d77c49085e3641&chksm=7a4861a14d3fe8b7844378e94778dd01430b726e849ed070b0be35cac476b0c1ac35399b4020#rd
 
 五：在群里发广告链接和低俗黄色内容，直接踢，也不要在群里讨论“翻墙”等内容。
