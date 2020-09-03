@@ -13,7 +13,7 @@
 国区账号7：smzzm43@163.com
 密码：685Q885q
 
->已购：inside、说剑The swords、BADLAND
+>已购：inside、说剑The swords、BADLAND、国家地理-每日精选（美图、壁纸）
 
 台湾账号8：bd9k551@icloud.com
 密码：Gy885756
