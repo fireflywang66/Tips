@@ -11,7 +11,7 @@
 >已购：Forest专注森林、时间规划局、Alook浏览器、VVebo、头条专业版、全能扫描王付费版、一言、小历、Pictailor、给未来写封信
 
 国区账号7：smzzm43@163.com
-密码：685Q885q
+密码：tY885885
 
 >已购：inside、说剑The swords、BADLAND、List背单词、豌豆背单词、国家地理-每日精选（美图、壁纸）
 
